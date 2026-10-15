@@ -1,1 +1,1 @@
-<img width="1200" height="600" alt="miku" src="https://github.com/user-attachments/assets/6cae3037-5d19-42d7-8b53-85820fa0c925" /
+<img width="1224" height="663" alt="miku" src="https://github.com/user-attachments/assets/79bf975f-5f65-44a7-b439-d558a02c269f" />
