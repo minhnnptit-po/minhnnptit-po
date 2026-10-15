@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/minhnptit-po/minhnptit-po/blob/output/github-contribution-grid-snake.svg" alt="Snake animation" />
+  <img src="https://raw.githubusercontent.com/minhnnptit-po/minhnnptit-po/output/github-contribution-grid-snake.svg" alt="Snake animation" />
 </p>
