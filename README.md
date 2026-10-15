@@ -1,1 +1,1 @@
-![Ảnh bìa]([[https://i.imgur.com/abcxyz.png](https://4kwallpapers.com/images/walls/thumbs_2t/25942.jpg)](https://image-5.uhdpaper.com/wallpaper/hatsune-miku-error-anime-girl-4k-wallpaper-uhdpaper.com-227@5@o.jpg))
+![Ảnh bìa](https://image-5.uhdpaper.com/wallpaper/hatsune-miku-error-anime-girl-4k-wallpaper-uhdpaper.com-227@5@o.jpg)
