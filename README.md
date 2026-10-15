@@ -1,1 +1,2 @@
-![Ảnh bìa](https://image-5.uhdpaper.com/wallpaper/hatsune-miku-error-anime-girl-4k-wallpaper-uhdpaper.com-227@5@o.jpg)
+<img width="1724" height="963" alt="miku" src="https://github.com/user-attachments/assets/6cae3037-5d19-42d7-8b53-85820fa0c925" />
+
